@@ -10,3 +10,8 @@ reasoning-in all total i really don't get the cell phone banned since i am writi
 claim-computer science really does chnage a normal person life with the technology we have, there is coding and programming in it for it to function a certain way that the coder want it.
 evidence-in the video we have programming everywhere in phones,apps,computers,and anything that has tech in it will most likey have a bit of coding in it like inventor and coder who worked at big companys like apple,google etc has always coded technology for it to function a certain series of ways. and with tech adavancing every day the coding for them are always be there since we can't just make a piece of tech with no coding for it to function.
 reason- in all computer science and coding can be a changing life chance as the coding can help people find location,help in hospital, or just everything life uses.
+
+# september 16,2025
+claim-it about Ai help to inspire to solve problems in the community.
+evidence-it will help people in a community with students Ai to inspire youth to with the community.
+reason-it will help with the srtudy of k-12 learning.
