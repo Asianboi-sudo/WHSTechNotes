@@ -15,3 +15,9 @@ reason- in all computer science and coding can be a changing life chance as the 
 claim-it about Ai help to inspire to solve problems in the community.
 evidence-it will help people in a community with students Ai to inspire youth to with the community.
 reason-it will help with the srtudy of k-12 learning.
+
+# september 22,2025
+Claim- ikea is creating new opportunities by opening a virtual store on roblox where people can get paid to work.
+evidence- the article explains that IKEA launched a roblox store called "the co-worker game", and some people can apply for paid roles inside the game.
+reason - this shows that ikea is blending gaming with real life job experience. by paying people to work in roblox, ikea is using a real creative way to connect with the younger audiences and give them a real sense of world responsibility and also to promote the brand in a fun way
+ This response used AI.
