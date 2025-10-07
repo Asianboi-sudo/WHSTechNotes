@@ -27,3 +27,6 @@ The meaning of 67 comes from a music video called Doot Doot by rapper Skrilla. T
 
 # october 6, 2025
 If i was in charge of a school and the policy on phones,this is what I would do. first i would allow phones, making it to where student can't use a phone in school is useless, all it making the student do is being more sneaky. Now for AI it would be different, if AI was use just a little bit in a story then i wouldn't care but if it was the whole thing then no because that is not a good. but i wouldn't banned phones in school, like if there was an accident that happen and you don't wanna tell the admin because it is personal then i get that. If really the phones are a big problem then i would just a time/period to where student can't use their phone by j=having teachers put it in a bag or jar. and to get it after class because that is there right to have a phone.
+
+# october 7. 2025
+hour of code- dance party
