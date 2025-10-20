@@ -40,3 +40,9 @@ hour of code- minecraft timecraft
 # october 14, 2025
 https://www.canva.com/design/DAG1x-XweN4/SRMTCpVF1fOHeU5tR3GzxA/edit?utm_content=DAG1x-XweN4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 Now the way how my program or short intro game into computer science help is that we get a test on how much knowledge they know. for example i created a 5 question quiz for a starter to get learn into computer science. so the way canva helped me interpet it, is by helping me make a long all year class into a short question quiz. but next time for the design i maybe probably add more deep answers then the short ones i have done.
+
+# october 20, 2025
+markdown table
+franklin-second-91A
+hardeep-third-61F
+marla-first-35B
