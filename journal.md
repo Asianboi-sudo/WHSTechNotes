@@ -46,3 +46,9 @@ markdown table
 franklin-second-91A
 hardeep-third-61F
 marla-first-35B
+
+# october 27, 2025
+markdown table
+fiona- gado gado - creme brulee
+tobias- shrimp ceviche - french apple cake
+leanne - beef wellington - raspberry tiramisu
