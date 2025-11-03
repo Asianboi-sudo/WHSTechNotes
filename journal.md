@@ -52,3 +52,6 @@ markdown table
 fiona- gado gado - creme brulee
 tobias- shrimp ceviche - french apple cake
 leanne - beef wellington - raspberry tiramisu
+
+# november 3, 2025
+if SNAP ran out of funding for families, the families who are poor and can't buy food would be affected the most. SNAP helps familys to buy food for them and if they lost funding most families would be starving. but technology likes apps or websites were there to help it would. example would be like tiktok, youtube, instagram, snapchat, etc. technology helps lots of people around the world and if SNAP problem were going out people would try to help. but if there was no internet then the problem would be much bigger as more families were be out of food, drinks, shelter, and clothes. now if i was creating a tool to help food it waould be called fisher as you can find food.
