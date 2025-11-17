@@ -58,3 +58,6 @@ if SNAP ran out of funding for families, the families who are poor and can't buy
 
 # november 10, 2025
 i think my growth and gradtitude that i was happy with this year was football. during the season i never ever skipped out on a drill which i was pround of since most kids were bigger then me. and imma use it for next year to rememebr that if i get hit it fine and move on to the next drill. so next year during football imma just use think about the drill and nothing else to power through it. so really it just all about giving 100% in the drill. 
+
+# november 17, 2025
+i'm not gonna lie i'am actually looking foward to thanksgiving break. the main reason why is cuz i get to rest for a week from school. this means no worries about grades and being sore from football. plus with that it means i get it be cold at night sleeping and eat good food while people are asleep. lastly it means the cold winter is coming which means i get to be all cold at night.
