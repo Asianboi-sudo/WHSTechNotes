@@ -64,3 +64,7 @@ one jobs that people uses drone in is a delivery droner opreator who deliveres p
 
 # november 17, 2025
 i'm not gonna lie i'am actually looking foward to thanksgiving break. the main reason why is cuz i get to rest for a week from school. this means no worries about grades and being sore from football. plus with that it means i get it be cold at night sleeping and eat good food while people are asleep. lastly it means the cold winter is coming which means i get to be all cold at night.
+
+# december 15, 2025
+my plans for winter break is to just sleep. all it is really is sleep and rest from football.
+
