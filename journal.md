@@ -68,3 +68,6 @@ i'm not gonna lie i'am actually looking foward to thanksgiving break. the main r
 # december 15, 2025
 my plans for winter break is to just sleep. all it is really is sleep and rest from football.
 
+# january 6, 2026
+the tech i used over break was my phone, xbox, and my macbbok. my phone i used to text and watched videos on youtube or movies. then on my xbox i played games and stayed up until like 5am to go to sleep. lastly my macbook i used to watch movies or call people.
+
