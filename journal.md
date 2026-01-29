@@ -71,3 +71,5 @@ my plans for winter break is to just sleep. all it is really is sleep and rest f
 # january 6, 2026
 the tech i used over break was my phone, xbox, and my macbbok. my phone i used to text and watched videos on youtube or movies. then on my xbox i played games and stayed up until like 5am to go to sleep. lastly my macbook i used to watch movies or call people.
 
+# january 29, 2025
+The the test i took was the TSi english 1 test. I think i did pretty well i got 228 on my english and a 217 on my language one. i really don't think me prepping for it well help me get a high score. the reason why is because everytime i do study i get more nervous about it.
