@@ -71,5 +71,8 @@ my plans for winter break is to just sleep. all it is really is sleep and rest f
 # january 6, 2026
 the tech i used over break was my phone, xbox, and my macbbok. my phone i used to text and watched videos on youtube or movies. then on my xbox i played games and stayed up until like 5am to go to sleep. lastly my macbook i used to watch movies or call people.
 
-# january 29, 2025
+# january 29, 2026
 The the test i took was the TSi english 1 test. I think i did pretty well i got 228 on my english and a 217 on my language one. i really don't think me prepping for it well help me get a high score. the reason why is because everytime i do study i get more nervous about it.
+
+# february 2, 2026
+the reason why personal hygiene and self care is important is because hygiene is something that will help the cleaniness around an area, and self care as taking showers so you don't smell. then loud conversations can distracted a person focus on something like writing a paper. i think the reasonable expaction is language because some people just cuss alot for no reason. the self regulation i would say is voice because no one wants to be loud. the one thing i would say iw ould improve is taking
