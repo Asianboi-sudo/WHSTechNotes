@@ -76,3 +76,8 @@ The the test i took was the TSi english 1 test. I think i did pretty well i got 
 
 # february 2, 2026
 the reason why personal hygiene and self care is important is because hygiene is something that will help the cleaniness around an area, and self care as taking showers so you don't smell. then loud conversations can distracted a person focus on something like writing a paper. i think the reasonable expaction is language because some people just cuss alot for no reason. the self regulation i would say is voice because no one wants to be loud. the one thing i would say iw ould improve is taking
+
+# february 10, 2026
+1. yes, i do enjoy football because i play it and enjoy watching it.
+2. yes i did watch the superbowl.
+3. my opinion on it is that i wish sam donald was back on viking.
