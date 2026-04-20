@@ -81,3 +81,6 @@ the reason why personal hygiene and self care is important is because hygiene is
 1. yes, i do enjoy football because i play it and enjoy watching it.
 2. yes i did watch the superbowl.
 3. my opinion on it is that i wish sam donald was back on viking.
+
+# april 20, 2026
+music does matter if it made by Ai or human since human has more heart to it. it think Ai can influence how people make content, but there should be a limit on how ai is used since it can sometimes go out of hand. plus most Ai we used people can make videos on it. also humans should have more power over Ai since Ai can be used for the wrong things. that is why i think Ai does change hower make music.
