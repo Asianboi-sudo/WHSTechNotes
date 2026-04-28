@@ -84,3 +84,6 @@ the reason why personal hygiene and self care is important is because hygiene is
 
 # april 20, 2026
 music does matter if it made by Ai or human since human has more heart to it. it think Ai can influence how people make content, but there should be a limit on how ai is used since it can sometimes go out of hand. plus most Ai we used people can make videos on it. also humans should have more power over Ai since Ai can be used for the wrong things. that is why i think Ai does change hower make music.
+
+# april 28, 2026
+the way how i payed attention is on my phone. also we used computers to watch or play the games. plus we used it in everyday life to send or used the videos. and the way i pay attention is mostly by my phone since it the bread and butter.
