@@ -87,3 +87,8 @@ music does matter if it made by Ai or human since human has more heart to it. it
 
 # april 28, 2026
 the way how i payed attention is on my phone. also we used computers to watch or play the games. plus we used it in everyday life to send or used the videos. and the way i pay attention is mostly by my phone since it the bread and butter.
+
+# may 7, 2026
+yes, i am personally helping train ai systems through the apps and tools i use every day.
+evidence: when i use tiktok and keep scrolling, it tracks what i watch, how long i watch it, and what i skip. on instagram, likes, comments, and even what i pause on can be used to adjust what shows up next. when i use google search, my clicks and search terms help improve results and suggestions. even reCAPTCHA can use my responses (like selecting images) to help train systems to recognize objects.
+reasoning: all of this data shows patterns in human behavior, which companies can use to improve ai recommendations, predictions, and recognition systems. basically, my actions help ai learn what people like, what they ignore, and how to respond better in the future. i’m not just a user, i’m also part of the data being collected to train and refine these systems.
