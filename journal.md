@@ -92,3 +92,6 @@ the way how i payed attention is on my phone. also we used computers to watch or
 yes, i am personally helping train ai systems through the apps and tools i use every day.
 evidence: when i use tiktok and keep scrolling, it tracks what i watch, how long i watch it, and what i skip. on instagram, likes, comments, and even what i pause on can be used to adjust what shows up next. when i use google search, my clicks and search terms help improve results and suggestions. even reCAPTCHA can use my responses (like selecting images) to help train systems to recognize objects.
 reasoning: all of this data shows patterns in human behavior, which companies can use to improve ai recommendations, predictions, and recognition systems. basically, my actions help ai learn what people like, what they ignore, and how to respond better in the future. i’m not just a user, i’m also part of the data being collected to train and refine these systems.
+
+# may 18, 2026
+i would describe my friend joe as a person who doesn't really care about small stuff. he usually wears shorts or jeans with a T shirt that has graphics on it. you would most lkely find him at a park or at public place. also his personality is more memlo as he really doesn't care for the little problems. and one memorable thing that makes him easy to see is his build.
